@@ -1,1 +1,1 @@
-# JNTU-Hyderabad-JNTUH-university-update
+its a prank.poi pani chusuko
